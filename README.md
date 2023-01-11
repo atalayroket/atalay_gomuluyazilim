@@ -1,1 +1,1 @@
-# atalay_gomuluyazilim
+# Gömülü Yazılım
