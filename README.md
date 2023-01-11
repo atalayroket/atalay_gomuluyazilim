@@ -1,0 +1,1 @@
+# atalay_gomuluyazilim
